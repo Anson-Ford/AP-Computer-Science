@@ -1,3 +1,1 @@
-# AP-Computer-Science
-AP Comp Sci Collab
-You Suck Lmao
+Hi i am anson and i haul dong
